@@ -9,4 +9,5 @@ Delhi Capitals (DC) A young and energetic team that has developed many talented 
 Lucknow Super Giants (LSG) One of the newer IPL teams, joining in 2022. They quickly became strong contenders in the tournament.
 Punjab Kings (PBKS) A competitive team known for exciting batting lineups. They continue to search for their first IPL title.
 Conclusion
-The IPL consists of 10 exciting teams, each with its own unique style, star players, and loyal supporters, making the tournament one of the most popular cricket leagues in the world. 🏆🏏
+The IPL consists of 10 exciting teams, each with its own unique style, star players, and loyal supporters, making the tournament one of the most popular cricket leagues in the world. 🏆🏏.
+
